@@ -1,0 +1,3 @@
+# Semana Level Hard
+
+**Semana passa foi complicado mas com a ajuda dos lovelacers pude desolver e aprender muito sobre resiliência0**. Força de vontade será meu guia nessa jornada até dezembro. Let's goooo motherfuckerssss.....
